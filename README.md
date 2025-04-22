@@ -1,1 +1,1 @@
-https://boruto564.github.io/Image-slider/
+https://borutoez.github.io/Image-slider/
